@@ -6,12 +6,20 @@ Location 1: Bridge 1
 - 
 
 Location 2: Duck Pond
+- Splitting mark in between the upper and lower watershed of stroubles creek
+- https://vtechworks.lib.vt.edu/bitstream/handle/10919/49495/VWRRC_sr201048.pdf
+- https://kids.kiddle.co/Stroubles_Creek
+
 
 Location 3: Alumni Pond
 
-Location 4:
+Location 4: Blacksburg Milling and Supply Company
+- https://16frogs.org/frogs/millie.html
+- The mill was powered by Stroubles
 
-Location 5:
+Location 5: Area around War Memorial Gym and Drill Field as it was burried under here
+![image](https://user-images.githubusercontent.com/92938154/161821595-5dd6dca8-f810-4a89-b58b-391d9245eeab.png)
+https://create.piktochart.com/output/20516777-scip-infographicfeb2017
 
 Location 6:
 
