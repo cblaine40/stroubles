@@ -14,6 +14,8 @@ Location 2: Duck Pond
 Location 3: Alumni Pond
 
 Location 4: Blacksburg Milling and Supply Company (now Rivermill Bar)
+- Two images on slide 16 on https://docs.google.com/presentation/d/1gF0gdq_pVj_AJhthiGwO1gdrb9KbLjm74rvW6HWK428/edit#slide=id.g11eaef2efb6_0_254
+- 
 - https://16frogs.org/frogs/millie.html
 - The mill was powered by Stroubles
 
