@@ -11,9 +11,9 @@ Location 2: Duck Pond
 - Splitting mark in between the upper and lower watershed of stroubles creek
 - https://vtechworks.lib.vt.edu/bitstream/handle/10919/49495/VWRRC_sr201048.pdf
 - https://kids.kiddle.co/Stroubles_Creek
+- Include information about the damn
 
-
-Location 3: Alumni Pond
+Location 3: Alumni Pond?
 
 Location 4: Blacksburg Milling and Supply Company (now Rivermill Bar)
 - Two images on slide 16 on https://docs.google.com/presentation/d/1gF0gdq_pVj_AJhthiGwO1gdrb9KbLjm74rvW6HWK428/edit#slide=id.g11eaef2efb6_0_254
@@ -26,7 +26,7 @@ Location 5: Area around War Memorial Gym and Drill Field as it was burried under
 
 - https://create.piktochart.com/output/20516777-scip-infographicfeb2017
 
-Location 6:
+Location 6: Wildlife page? Include information about the different aquatic life in Stroubles
 
 Location 7:
 
